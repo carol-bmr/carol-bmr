@@ -6,6 +6,8 @@ Trasformo dati grezzi in analisi chiare e decisioni informate. Il mio metodo par
 
 Ho completato il percorso **Data Analyst** di EPICODE (2026) e sono alla ricerca di un ruolo da **Data Analyst in remoto, ibrido o in sede**.
 
+🌐 **[Visita il mio portfolio → carol-bmr.github.io](https://carol-bmr.github.io)**
+
 📍 Genova, Italia · 🔗 [LinkedIn](https://www.linkedin.com/in/carol-pagano-b2b762431/)
 
 ---
